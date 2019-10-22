@@ -1,1 +1,0 @@
-# https-www.scelvinolife.blogspot.com
